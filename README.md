@@ -1,2 +1,2 @@
 # DARK MOD PRO
-Janga lupa kasih Star [Thanks]
+Jangan lupa kasih Star [Thanks]
